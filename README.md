@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @Deng-Jiayu
-- 👀 I’m interested in applied ML and software development.
-- 🌱 I’m currently learning generative adversarial networks.
-- 💞️ I’m looking to collaborate on 3D geological structure inversion
 - 📫 reach me djy@cug.edu.cn
 
 <!---
