@@ -255,6 +255,19 @@
 又和你们有什么关系呢
 caonm的畜生玩意
 
+他们搁这装什么白莲花呢
+王建明搞我那么狠
+蔡勰搞我那么狠
+龙欢搞我那么狠
+他们不知道是吧
+不是他们指使的是吧
+这些人本质上还是不把打工的当人
+不把穷人当人
+老红军啊老红军
+打仗的时候杀人过瘾
+打完仗了杀穷人过瘾
+好一个解放军
+
 
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
