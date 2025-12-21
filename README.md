@@ -232,6 +232,22 @@
 给我爸打骂成了讨好鬼胆小鬼，这病是治不了了
 
 
+那我是不服的
+他说我搞破坏
+有些课真不如翘课
+大清早起床去上课
+肚子难受得要死
+一直放屁忍不住
+早知道不去或者躲在后面
+坐前面他们还以为我在搞破坏
+
+
+我怎么就是不能明白呢
+这些人看我就是带有偏见的
+这么些人这么些事情就是教训
+惹不起躲远点别看别理
+
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
