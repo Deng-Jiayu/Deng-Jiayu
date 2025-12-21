@@ -165,6 +165,19 @@
 
 狗屎解放军
 
+这些老师都是畜生
+全在针对我
+我也没办法
+可能我长得就不是好人
+没法儿
+我一动笔就走到我旁边盯着我
+故意白我
+白眼盯着我看
+医师公医师公医师公
+
+教书育人本事没有
+毁人不倦摧残人本事很大
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
