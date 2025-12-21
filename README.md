@@ -178,6 +178,36 @@
 教书育人本事没有
 毁人不倦摧残人本事很大
 
+我这人有个毛病
+有点风吹草动喜欢看
+显得自己一种泛滥而出的不安分
+同时又莫名其妙的对陌生人讨好想要透露出友好
+一个劲地贴上去
+可是往往给我带来的是麻烦
+我不应该看这些监考老师的
+同考场就我抬头看他们
+我在看的时候没人看
+
+
+谨小慎微地看着
+揣测别人的想法
+我为什么做不到那种冷漠
+
+考这三场考试
+只有考英语迟到了
+那老师反而没有特意盯着我
+但那老师看我写的作文很烂
+快考完了还在写作文故意搞我
+我越是着急她越是说马上到时间
+到时间不停笔就是零分
+
+
+不想再谨小慎微地活着了
+不想在意别人地看法
+做一个冷淡的人
+
+
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
