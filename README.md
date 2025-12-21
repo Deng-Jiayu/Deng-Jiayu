@@ -306,6 +306,19 @@ caonm的畜生玩意
 让我安心工作上班
 
 
+我的人生是毁了
+我的学业是毁了
+我的个人卫生是毁了
+我的精神状态是毁了
+我的生活态度是毁了
+就差狠下心找个地方跳下去了
+可我不想死
+我觉得这都是他们的陷阱他们害得
+他们要赶我去学校
+我不想去
+我要找个好地方去打工去工作
+去重新生活
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
