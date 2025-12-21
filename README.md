@@ -247,6 +247,14 @@
 这么些人这么些事情就是教训
 惹不起躲远点别看别理
 
+这也没法儿了
+这些地信的人硬是觉得我要翘有夫之妇
+我都已经说了我不可能再干地信方面工作了
+不可能给他们当狗耍了
+我是不是个道德败坏的人
+又和你们有什么关系呢
+caonm的畜生玩意
+
 
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
