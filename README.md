@@ -319,6 +319,15 @@ caonm的畜生玩意
 我要找个好地方去打工去工作
 去重新生活
 
+这三年
+对比下来
+也就英语和写代码提高了
+看到阅读题和写代码大题都想笑
+数学408什么的
+都是狗屎
+能不能考上还得看同行是不是都够垃圾
+
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
