@@ -327,6 +327,19 @@ caonm的畜生玩意
 都是狗屎
 能不能考上还得看同行是不是都够垃圾
 
+打开电脑
+想起自己之前做的事情
+感觉很颓废
+自己想逃离这个地信圈子
+这几天没接触电脑想的是要行动
+可是打开电脑过了一会儿又瞬间瘫废了
+颓废不堪
+
+
+我这种人被人对付也是应该的
+太愚蠢跟着别人步子走
+自己又不行动
+任人宰割
 
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
