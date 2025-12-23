@@ -479,6 +479,23 @@ https://youtu.be/v8wHxhPeeHc?si=TNeWDr6PIUIwzNd8
 害  还是要在一个好环境
 混子没那么多  不至于自己混在里面也是个混子
 
+害 也只有刚考完会觉得自己要怎么样下次才能考好
+要看些什么书做些什么练习
+
+我是不是做错了
+我考什么研啊
+我不能找个好地方去工作吗
+考研干什么啊
+根本就不喜欢做题不喜欢读书
+永远不想花时间，到不了那种做题有成就感很轻松的地步
+
+
+这些老师给的成就
+打压不会读书的
+所以不会读书的永远不会读书了
+可悲的事实
+
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
