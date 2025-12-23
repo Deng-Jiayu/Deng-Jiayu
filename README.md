@@ -464,6 +464,21 @@ https://youtu.be/v8wHxhPeeHc?si=TNeWDr6PIUIwzNd8
 发生了一些事又觉得他们是纯坏人
 个人转变太快
 
+多责怪他人
+少埋怨自己
+那考场的都是混子
+卷子发下来就吊儿郎当
+摇头晃脑
+考到快结束了偏要提前交卷
+不是为什么坐我前面的全提前交卷了
+四场考试三个地方不同前座
+全提前交卷
+考场上的人全大题也不写
+写个解字都不愿意
+混点分的意思都没有
+害  还是要在一个好环境
+混子没那么多  不至于自己混在里面也是个混子
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
