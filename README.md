@@ -459,6 +459,11 @@ https://youtu.be/v8wHxhPeeHc?si=TNeWDr6PIUIwzNd8
 全是打着为我好的旗号
 来做些为了他们自己好的事情
 
+我是不是个纯坏蛋
+在之前还觉得他们是好人
+发生了一些事又觉得他们是纯坏人
+个人转变太快
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
