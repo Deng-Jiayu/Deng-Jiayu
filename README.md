@@ -524,6 +524,12 @@ https://youtu.be/v8wHxhPeeHc?si=TNeWDr6PIUIwzNd8
 没钱就是被人耍被人欺负的命
 
 
+确实是你好我好大家好
+我有点是不想要自己好了
+混着过日子
+没动力没能力没想法
+
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
