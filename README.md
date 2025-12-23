@@ -496,6 +496,34 @@ https://youtu.be/v8wHxhPeeHc?si=TNeWDr6PIUIwzNd8
 可悲的事实
 
 
+我这人已经成了一个精神病了
+我爸妈，这些老师领导喜欢装一个好人
+明明都是畜生喜欢虐待人
+说成是为了人好，硬是赶我去读书考研
+那我就去考了
+考了垃圾分
+伤害自己
+也打他们的脸
+告诉他们，他们就是屎
+他们的教育方法，他们的为人都是屎
+垃圾
+狗屎
+自私自利
+为达目的不择手段
+以贬低摧毁辱骂霸凌为手段
+打着为你好的牌子
+干着畜生的勾当
+
+畜生玩意
+什么狗屎
+共产党也是一样
+为什么狗屎为了老百姓
+不就是自己要捞多一点钱
+
+
+没钱就是被人耍被人欺负的命
+
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
