@@ -530,6 +530,20 @@ https://youtu.be/v8wHxhPeeHc?si=TNeWDr6PIUIwzNd8
 没动力没能力没想法
 
 
+浪费时间
+这辈子是毁了
+想要深造和文凭
+可是又不努力保研
+考研是场大关，读书写题又是深恶痛绝
+花大量时间读书写题浪费精力看文献
+全是无用功
+真正要写代码
+没花时间在这上面
+干什么都是半吊子
+写一些垃圾代码浅尝辄止
+
+
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
