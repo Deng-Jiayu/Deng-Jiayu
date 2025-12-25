@@ -640,6 +640,23 @@ md纯纯奴隶主
 真本事没有
 畜生玩意
 
+很难评
+又出现了
+那些人
+我说要这些畜生就该死，就得杀了他们
+这些人又怕了
+像在佛祖岭开除我又威胁我把我送进去一样
+怕惹急了我，我给他们刀了
+天天开着个车就蹲着我
+我一下楼他们也到了
+我一走那车也走
+
+这些畜生什么都不怕
+就怕自己的身家性命
+他们谋害别人的身家性命倒是很在行
+权力真是个好东西
+
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
