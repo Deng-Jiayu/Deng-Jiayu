@@ -597,6 +597,23 @@ md纯纯奴隶主
 我这辈子毁了
 他这狗东西怎么就能好过
 
+我这人有朋友吗
+我并不觉得我这人有什么真朋友
+这也是刘修国那些畜生敢这么对付我的原因
+我这些“朋友”在我抱怨时
+并不觉得我真有多难受
+我有时甚至想
+他们为什么硬要假装是我朋友
+明明我要死了他们也只是表示惋惜
+我说自己多难受他们只是说这有什么
+
+我要一直骂
+骂到这些畜生玩意死的那天
+
+畜生刘修国
+畜生张勇
+畜生苟于
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
