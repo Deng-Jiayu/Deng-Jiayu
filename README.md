@@ -614,6 +614,32 @@ md纯纯奴隶主
 畜生张勇
 畜生苟于
 
+他们是赢了
+他们当然赢了
+哪怕我知道他们整我
+哪怕我骂他们这些畜生
+我还是报了中国地质大学
+这些畜生拿这个事实就能给他们洗白
+说他们自己是什么好人了
+
+畜生玩意
+毕设答辩給我一顿骂
+我要说就堵住我
+骂得一无是处
+
+骂就骂吧
+老子不鸟你们
+你们不就是些关系户
+上世纪走后门的产物
+
+畜生东西
+骂完还又找辅导员说这说那给自己抹白给学校抹白
+唱完红脸唱白脸
+唱tm的畜生
+这些人tm的上辈子当妓女的
+真本事没有
+畜生玩意
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
