@@ -555,6 +555,42 @@ https://youtu.be/v8wHxhPeeHc?si=TNeWDr6PIUIwzNd8
 羞死人  当然最后还是坏女人得到一切  找个有钱人多舒服
 
 
+畜生中国地质大学
+畜生地信行业
+就是搞我
+md有钱人他们就不敢搞
+专搞穷人
+知道有钱人搞大了大不了不读了
+这狗屁地理信息科学文凭
+不要就算了
+穷人就死守抱着这个文凭
+一直搞我
+也是杀我给这些穷人看
+md我逃课不行吗
+你讲的什么狗屁东西
+你刻意针对我
+給我打低分
+我tm看不出来吗
+不就是利用我打压我
+要我给你们当牛做马
+什么狗屎为人师
+md纯纯奴隶主
+把我坑骗到航天远景去出差996
+操tm的畜生
+全是畜生
+学校公司这行业
+全tm是畜生
+从上大学起这七年完全是毁了
+学了个狗屎
+骗去干出差996纯纯的垃圾工作
+什么狗屎军工行业
+纯纯坑骗国家经费耗费青年
+把人坑进去当傻逼整
+真正拿钱的贪官在外面游山玩水
+畜生玩意
+把人不当人把穷人不当人
+
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
