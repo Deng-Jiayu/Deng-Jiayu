@@ -657,6 +657,19 @@ md纯纯奴隶主
 权力真是个好东西
 
 
+国共内战为什么共赢了
+说到底还是国民党不够狠
+国共都杀人
+国民党杀穷人共产党也杀穷人
+但国民党不傻金主有钱人
+共产党杀有钱人杀资本家
+共产党就赢了
+
+现在我是被航天远景他们杀
+他们又在杀穷人
+而且杀的毫无痕迹也无人在意
+历史不会记录
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
