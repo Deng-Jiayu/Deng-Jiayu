@@ -670,6 +670,14 @@ md纯纯奴隶主
 而且杀的毫无痕迹也无人在意
 历史不会记录
 
+我是真感觉误入歧途
+在其他公司面试
+那领导起码还把我当好人当正常人
+在地信这狗屎圈子
+这些畜生玩意已经不把我当好人了
+他们欺负我杀掉我也没有道德顾虑
+误入歧途
+
 <!---
 Deng-Jiayu/Deng-Jiayu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
